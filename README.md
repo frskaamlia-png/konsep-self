@@ -1,1 +1,1 @@
-# konsep-self
+nama : friska amelia putri
